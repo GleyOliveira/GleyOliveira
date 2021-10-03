@@ -2,7 +2,6 @@
 
 - 👀 Estou cursando Gestão da TI/ 2° periodo
 - 🌱 Estudando programação
-- 💞️ 
 - 📫 Contacte-me em: kkelly.gl3@gmail.com
 
 <div>
